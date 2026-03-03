@@ -1,5 +1,5 @@
 # Aura
-###
+###Aura is a local brand based in Egypt for crafting customized handmade items and giveaways
 
 ---
 
